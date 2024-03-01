@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on PowerApps
 - 📫 How to reach me: send me a dm
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I play drums ![MuppetShowMuppetsGIF](https://github.com/sammsogeti/sammsogeti/assets/161866242/10d1e1a3-147a-4379-a4a2-2ba88ad404e5)
+- ⚡ Fun facts: I play drums and love riding motorcycles
+  ![MuppetShowMuppetsGIF](https://github.com/sammsogeti/sammsogeti/assets/161866242/10d1e1a3-147a-4379-a4a2-2ba88ad404e5) ![GudumbashankarGudumbaShankarMovieGIF](https://github.com/sammsogeti/sammsogeti/assets/161866242/e10dce6b-2f4a-43f4-b9dc-daf6a2441294)
+
 
 
 <!---

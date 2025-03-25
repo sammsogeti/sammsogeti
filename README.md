@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sergio
 - 👀 I’m interested in cloud development
 - 🌱 I’m currently learning Dutch
-- 💞️ I’m looking to collaborate on PowerApps
+- 💞️ I’m looking to learn and collaborate on PowerApps
 - 📫 How to reach me: send me a dm
 - 😄 Pronouns: He/Him
 - ⚡ Fun facts: I play drums and love riding motorcycles
